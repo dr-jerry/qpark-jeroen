@@ -23,9 +23,14 @@ Uit eiseresses response lees ik dat het risico voor schade aan haar eigendommen 
 
 Ik vind het jammer dat QPark slechts alleen de camera beelden op de uitrijd poort beschikbaar heeft gesteld en dat voor slechts 17 seconden. 2 minuten beeldmateriaal voorafgaand aan dit uitrijden zouden ook al zonneklaar laten zien dat iedereen die probeert de parkeergarage in te rijden er ook weer uitrijdt wegens de defecte poort. Ik verzoek dan ook aan u edelachtbare rechter, QPark te sommeren deze 2 minuten beeldmateriaal alsnog ter beschikking te stellen, tezamen met ander beeldmateriaal.
 
-Eiseres stelt dat de aanvullende schadevergoeding mede is opgebouwd uit kosten die voortvloeien uit investeringen voor dure camerasystemen (waarvoor eiseres de hulp van een extern expert nodig heeft om de correcte locatie vast te stellen)
-moet vast stelocatie niet geregistreerd hebben). Uit dagvaarding lees ik dat er 10000 van zulke gevallen per jaar zijn. 
-Zoals ik ook altijd QPark he In mijn specifieke situatie had dit ook te maken met
+Eiseres stelt dat de aanvullende schadevergoeding mede is opgebouwd uit kosten die voortvloeien uit investeringen voor dure camerasystemen (waarvoor eiseres kennelijk de hulp van een extern expert , ondergetekende, nodig heeft om de correcte locatie vast te stellen)
+moet vast stelocatie niet geregistreerd hebben). Uit dagvaarding lees ik dat er zo'n 10000 van zulke gevallen per jaar zijn, dit betekent een extra inkomstenpost van 3 miljoen euro per jaar. Ik neem aan dat QPark daarvoor wel meer dan 2 medewerkers kan inhuren en inwerken om "een grondig onderzoek" te doen. Eiseres heeft naar mijn mening niet het idee weggenomen dat deze camera en registratie systemen voorzover niet nodig voor een correcte bedrijfsvoering een uitermate renderende investering is.
+
+Op pagina 5 rept eiseres, zoals ze ook al in de dagvaarding deed, dat treintjerijders het PMS en PRIS systeem nadelig beinvloeden, hierop wil ik melden dat, door de storing aan de toegangspoort de systemen ook al foutieve informatie gaven. Immers klanten bleven inrijden omdat de bekende groene "VRIJ" werd getoond boven de parkeergarage en de kaartjes gewoon door de terminal werden uitgegeven.
+Eveneens op pagina 5 meldt eiseres, net als in de dagvaarding, dat ze steeds meer meldingen binnenkrijgt op Twitter en telefonische meldingen over treintjerijders. Nogmaals wanneer ik het afgelopen jaar kijk, zie ik nul meldingen van trouwe en eerlijke klanten over treintjerijders. Dat er wel telefonische meldingen binnenkomen lijkt mij ook niet heel erg logisch, dit kost namelijk 0.45 euro per gesprek.
+
+Op pagina 7 stelt eiseres dat de parkeerder op meerder plekken wordt gewaarschuwd voor de gevolgen van treintje rijden, dit is onjuist en is zelfs als bijlage door eiseres meegestuurd: Parkeerders worden alleen gewaarschuwd voor de gevolgen van uitrijden zonder te betalen.
+
+Wegens een wanprestatie van QPark heb ik niet kunnen, is er geen betalingsverplichting en vind ik de boete buitenproporioneel. Daarom edelachtbare rechter verzoek ik u de vordering van eiseres af te wijzen en de kosten van dit geding te verhalen op QPark.
 
 
-Wegens omdat er mijn insziens en ook volgens inzien van de Helpdesk zoalverwerp ik met klem en ik vraag Eiseres dit uit mijn v
