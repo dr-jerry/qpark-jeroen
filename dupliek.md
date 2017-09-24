@@ -1,8 +1,8 @@
 Roldatum : 8 September 2017
-Rolnummer : 17-12229
-Zaaknummer : 6014552
 
-Roldatum : 8 September 2017 Rolnummer : 17-12229 Zaaknummer : 6014552
+Rolnummer : 17-12229
+
+Zaaknummer : 6014552
 
 Dupliek.
 
