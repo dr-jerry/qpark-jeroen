@@ -14,7 +14,7 @@ De feiten:
 
 -1 - qpark Dagvaarding. 
 -2 - verweer van mij.
--3 - Dupliek van qpark
--4 - conclusie van repliek
+-3 - conclusie van repliek
+-4 - Dupliek van qpark
 
 uitspraak: https://uitspraken.rechtspraak.nl/inziendocument?id=ECLI:NL:RBAMS:2017:10380
