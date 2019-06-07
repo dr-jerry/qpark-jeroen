@@ -12,9 +12,9 @@ De feiten:
 * Op 15 juni 2016 ontving ik bericht van Spreksel Advocaten waarin werd medegedeeld dat eiseres het standpunt was toegedaan dat ik assistentie had kunnen vragen bij de helpdesk en dat daarom de vordering werd gehandhaafd (eveneens bijlage 3)
 * Op 11 mei 2017 werd de dagvaarding aan ons betekend. 
 
-1 - qpark Dagvaarding. 
-2 - verweer van mij.
-3 - Dupliek van qpark
-4 - conclusie van repliek
+-1 - qpark Dagvaarding. 
+-2 - verweer van mij.
+-3 - Dupliek van qpark
+-4 - conclusie van repliek
 
 uitspraak: https://uitspraken.rechtspraak.nl/inziendocument?id=ECLI:NL:RBAMS:2017:10380
